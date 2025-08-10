@@ -47,4 +47,4 @@ Ready to explore custom AI solutions for your specific needs? I specialize in:
 *   **Multi-modal AI applications**
     
 
-[📬 Contact me](arunvishwanathan88@gmail.com) or [Connect with me on LinkedIn](www.linkedin.com/in/arun-vishwanathan-16b56917)
+[📬 Contact me](mailto:arunvishwanathan88@gmail.com) or [Connect with me on LinkedIn](https://www.linkedin.com/in/arun-vishwanathan-16b56917)
